@@ -1,4 +1,4 @@
-# wandering-vegan
+# wandering vegan
 
 a space for a groovy girl who wants to see the world and write about her experiences. 
 
